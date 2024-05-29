@@ -7,7 +7,7 @@ Meu nome é VermelhoSangue
 
 Você pode entrar em contato comigo 📫
 
-alurastartestudante@email.
+alurastartestudante@email.com
 
 @alurastartestudante
 
